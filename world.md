@@ -1,4 +1,4 @@
-kdfjdjf
-dlfdfdfl
-dfdmfkdlfk
-skpokposel
+Третий семинар
+по гиту
+проходит
+успешно
